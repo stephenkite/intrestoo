@@ -1,2 +1,0 @@
-# intrestoo
-peoples intrests
